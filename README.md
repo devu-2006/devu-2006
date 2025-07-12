@@ -12,7 +12,7 @@
 
 ---
 
-🧑‍💼 **Connect With Me**
+🧑‍💼 **Tech Profiles**
 
 <p align="left">
   <a href="https://linkedin.com/in/devansh-singh2k6" target="_blank">
